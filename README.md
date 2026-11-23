@@ -45,9 +45,9 @@ Am I thinking "this is something I want to do"?
 If yes, that role goes on your shortlist. If you feel nothing, cross it off. Trending is not the same as right for you.
 If your dream role has no clear path, find the nearest one. I wanted to become a cybersecurity professor, but I couldn't find any cybersecurity professors creating content online. So I looked for the closest relatable role, and that was Cybersecurity DevRel (Developer Relations). It matched what I love: creating content, mentoring, teaching and explaining concepts simply.
 Check if the role can sustain. Look at industry research, job trends and metrics. Is the role growing? What are the next steps in the career path?
+
 Learn from people already there. Follow the creators and professionals in that role and take their guidance. Even if some guidance is paid, it can be worth it because it saves you years of trial and error.
 >
-> Add what you did, how long it took, and how you decided on your lane.
 
 **Quick self-check while you explore:**
 
